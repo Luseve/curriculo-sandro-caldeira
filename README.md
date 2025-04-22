@@ -51,4 +51,4 @@ Atuação com sistemas elétricos industriais, manutenção preventiva e correti
 - Comunicação clara  
 - Organização e foco  
 - Adaptabilidade
-atualizando currículo
+
