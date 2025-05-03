@@ -10,7 +10,7 @@ Currículo profissional e informações de contato para oportunidades home offic
 ---
 
 ## 🎯 Objetivo
-Atuar como **Desenvolvedor Júnior** em vagas home office, com foco em aprendizado constante, transição de carreira sólida e aplicação de conhecimentos adquiridos na área de tecnologia.
+Atuar como **Desenvolvedor Júnior** em vagas com foco em aprendizado constante, transição de carreira sólida e aplicação de conhecimentos adquiridos na área de tecnologia.
 
 ---
 
